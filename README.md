@@ -5,9 +5,9 @@ sumanthdugina2002@gail.com
 IT
 
 
-# RVRJC_IT
-## RVRJC_IT
-### RVRJC_IT
-#### RVRJC_IT
-##### RVRJC_IT
-###### RVRJC_IT
+# sumanth
+## y19it028
+### sumannthduggina@gmail.com
+#### 283473216455
+##### suryaraopalem,west godavari dist,A.P,india
+
